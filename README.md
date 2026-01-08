@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Dhruvn Pramanick
-** AI/ML || Coder / Developer || Multi-Tasker / Ethical Hacker **
+**AI/ML || Coder / Developer || Multi-Tasker / Ethical Hacker**
 
 Email Me 👉 ✉️ **dhruvnpramanick@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
