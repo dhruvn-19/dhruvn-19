@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Dhruvn Pramanick
 **AI/ML || Coder / Developer || Multi-Tasker / Ethical Hacker**
 
-Email Me 👉 ✉️ **dhruvnpramanick@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **dhruvnpramanick@gmail.com** For Collaboration/Project or Anything Else.
 
 - 🔭 **I’m currently working on:** AI/ML & DATA SCIENCE
 - 🌱 **I’m currently learning:** DSA
